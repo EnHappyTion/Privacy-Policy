@@ -1,23 +1,27 @@
 # Support Infomation
-# Sun OF Dragon City
+# cross happy elimination
 
 
 If you have any questions, please contact us at the email address below and we will answer you as soon as possible.
 
-Support email ：SunOFDragonCity@yeah.net
+Support email ：EnHappyTion@yeah.net
 
 
 
 ## About
 
-**Sun OF Dragon City** 
+**cross happy elimination** 
 
-Sun OF Dragon City Start here and try this simple game.
+The fresh-style elimination game is suitable for people of all ages to help you relax and exercise your memory and responsiveness.
 
-Gameplay: Find the same characters and click on them to complete a elimination. Eliminate all the same characters in the game and pass the level.
+-Classic gameplay, simple operation
+-Different style, fresh and beautiful
+-The faster the speed, the higher the score, allowing you to constantly challenge yourself
+-Super multi-level levels, giving you a new experience every time
+-Play anytime, anywhere, unlimited times
+Gameplay:
+Just remember where the same heroes are and click to eliminate them. Super easy! But be aware that the later the level is, the more difficult it is! Let's see how many levels you can break through!
 
-Each level is a new challenge, with shorter time, more characters, more difficulty and more fun!
-Come challenge yourself and see how many levels you can play.
 
 How about it? Does it sound exciting and interesting? If you are interested, download it now and challenge yourself!
 
